@@ -1,3 +1,3 @@
 # Starting up
 
-Getting us to the enviroment! excited😊😊😊
+Getting use to the enviroment! excited😊😊😊
